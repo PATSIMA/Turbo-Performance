@@ -1,4 +1,0 @@
-ESP
-¡Saludos a todos! Soy PATSIMA, y estoy aquí para compartir conocimientos que creo que les serán útiles. Quiero advertirles sobre la compra de productos innecesarios como NideOS, EmojiOS, PickleOS, Strenght, y otros que circulan en TikTok. A pesar de su falta de conocimiento sobre el funcionamiento de Windows, estas personas se atreven a vender productos de baja calidad. ¡Espero que esta información les sea de ayuda para tomar decisiones más informadas!
-ING
-Greetings to all! I'm PATSIMA, and I'm here to share knowledge that I think will be useful to you. I want to warn you about purchasing unnecessary products like NideOS, EmojiOS, PickleOS, Strength, and others circulating on TikTok. Despite their lack of knowledge about how Windows works, these people dare to sell low-quality products. I hope this information helps you make more informed decisions!
